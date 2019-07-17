@@ -47,7 +47,7 @@ Linda under the instruction of Constable Jeff Stuck locks all the doors of the h
 7. Brian Schlaepfer, 64 years old. 
 
 ## Police responce
-Constable Jeff Stuck stayed on the phone with Linda for 3+ hours while the police organized themselves and made a plan of attack. He would try and get information out of her as well as let her know important information about the police movements. AQccoridng to Constable Stuck they talked about her 3 pets cats, school interests, her ballet and jazz dancing, and about how her family had been to the movies the day before. 
+Constable Jeff Stuck stayed on the phone with Linda for 3+ hours while the police organized themselves and made a plan of attack. He would try and get information out of her as well as let her know important information about the police movements. AQccoridng to Constable Stuck when she started to realize she may have just lost her entire family he talked about her 3 pets cats, school interests, her ballet and jazz dancing, and about how her family had been to the movies the day before., to keep her calm and distratced. By 8am the armed ofenbders or AOS arrived on Ostrich Farm Road
 
 
 Refrences
