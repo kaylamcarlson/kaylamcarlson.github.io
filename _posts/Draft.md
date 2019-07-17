@@ -63,3 +63,4 @@ https://www.nzherald.co.nz/nz/news/article.cfm?c_id=1&objectid=10440545
 https://www.apnews.com/af40ab8f57156201b32d44b7d11d09ce
 https://murderpedia.org/male.S/s/schlaepfer-brian.htm
 http://www.schlaepferpark.org/
+https://macabretranquility.tumblr.com/post/166195299442/my-granddad-hes-shot-my-brother-and-i-think
