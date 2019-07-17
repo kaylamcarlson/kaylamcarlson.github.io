@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "The Schlaepfer Family Murder"
+title: "The Schlaepfer Family Murders"
 author: "Kayla Carlson"
 categories: journal
 tags: [documentation,sample]
