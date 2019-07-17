@@ -63,11 +63,11 @@ Constable Jeff Stuck needs to be commended for his work on the day. He first did
 The story of the Schlaepfer Family Murder is a tragic and awful one. A once happy and thriving family destroyed within a 20 minute time frame by someone who they loved and trusted. Brian Schlaepfer was clearly distrubed and needed help, however he did not get that help and did the unthinkable. If you look in the right places you can still see the impact the Schlaepfer Family had on the small town of Paerata. Decades of hard work and community building can be destroyed in an instant. However I implore you, if you do come across one of the few remnants of the Schlaepfer family left in that town, please don't think of that awful tragedy. Think of Linda and Kerry Schlaepfer the survivors and the 6 who did nothing wrong yet paid the ultimate price. 
 
 
-Refrences
-http://www.crime.co.nz/c-files.aspx?ID=10
-https://truecrimenz.com/2019/07/14/case-3-schlaepfer-family-murders-transcript/
-https://www.nzherald.co.nz/nz/news/article.cfm?c_id=1&objectid=10440545
-https://www.apnews.com/af40ab8f57156201b32d44b7d11d09ce
-https://murderpedia.org/male.S/s/schlaepfer-brian.htm
-http://www.schlaepferpark.org/
-https://macabretranquility.tumblr.com/post/166195299442/my-granddad-hes-shot-my-brother-and-i-think
+### References
+* http://www.crime.co.nz/c-files.aspx?ID=10
+* https://truecrimenz.com/2019/07/14/case-3-schlaepfer-family-murders-transcript/
+* https://www.nzherald.co.nz/nz/news/article.cfm?c_id=1&objectid=10440545
+* https://www.apnews.com/af40ab8f57156201b32d44b7d11d09ce
+* https://murderpedia.org/male.S/s/schlaepfer-brian.htm
+* http://www.schlaepferpark.org/
+* https://macabretranquility.tumblr.com/post/166195299442/my-granddad-hes-shot-my-brother-and-i-think
