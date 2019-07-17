@@ -32,16 +32,16 @@ Hazel at this point hears the commotion going on at the house and decides she ne
 
 Reports state that after killing Peter, Brian went back to looking for Linda. He knew she was home and tried calling for her. At this stage Linda had moved from the closest to under her bed. At some point after Brian has left the house Linda goes into her brother Aarons room and sees him either dead or in the process of dying. She then does the bravest and smartest thing she could have done on the day by heading to the kitchen. She passes her dead mother, collects the phone and continues the conversation with Constable Jeff Stuck. I won't write the entire transcript of the phone conversation but you can find bits and pieces online if you're so inclined to look for it. The most haunting part of the call however goes like this: 
 
-> Stuck: "What’s happening there, love?"
-> Linda: "My granddad…."
-> Stuck: "Your granddad…"
-> Linda: "He’s shot my brother."
-> Stuck: "Your granddad has shot your brother."
-> Linda: "Yes, and I think he’s coming to shoot… he’s going to shoot me."
-> Stuck: "And he’s going to shoot you now."
-> Linda: "He’s looking for me."
-> Stuck: "Listen, is Mum there? Can she come to the phone?"
-> Linda: "No. Mummy’s dead. He shot her up her nose… she’s just lying there."
+> *Stuck:* "What’s happening there, love?"
+> *Linda:* "My granddad…."
+> *Stuck:* "Your granddad…"
+> *Linda:* "He’s shot my brother."
+> *Stuck:* "Your granddad has shot your brother."
+> *Linda:* "Yes, and I think he’s coming to shoot… he’s going to shoot me."
+> *Stuck:* "And he’s going to shoot you now."
+> *Linda:* "He’s looking for me."
+> *Stuck:* "Listen, is Mum there? Can she come to the phone?"
+> *Linda:* "No. Mummy’s dead. He shot her up her nose… she’s just lying there."
 
 Linda under the instruction of Constable Jeff Stuck locks all the doors of the house, and barricaded herself in one of the rooms using any furniture she could move herself. Linda told Constable Stuck her version of the events that had happened. She could still hear talking and said it sounded like someone was trying to get back into the house. Constable Stuck did an amazing job to help Linda. At this stage Brian wanders off into the bush and kills himself with a single bullet. With his death the official death toll of the day was seven. All the victims and their ages are listed in order:
 
