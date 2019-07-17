@@ -14,16 +14,9 @@ On the 20th of May in 1992, South Auckland was shocked by the brutal act of one 
 
 ## The Schlaepfer Family
 
-![alt text](https://github.com/kaylamcarlson/kaylamcarlson.github.io/blob/master/assets/img/Brian.jpg)
+![alt text](https://raw.githubusercontent.com/kaylamcarlson/kaylamcarlson.github.io/master/assets/img/Brian.jpg)
 
 The Schlaepfer family name become well known around town after they settled in the town of Paerata. They quickly became well liked within the community. A local road was named after them and still exists to this day. This road sits around 6km away from the family's original farm site. Not much is known about Brian Schlaepfers early life however he was born on September 07, 1927 and by 1992 he was 64 years of age and running the family farm. He married a woman named Jocelyn who was born November 21, 1932. During their marriage they had 3 sons. Peter Wayne Schlaepfer was the eldest and he was born on the 11 of November, 1952. There are less details known about the 2 other sons however the middle son, Karl Percival Schlaepfer was born in 1959 and the youngest son, Darrell Bryan Schlaepfer, was born in 1961. Brian was born into a family with a good name due to their good deeds in the surrounding community. However Brian continued to gather positive feelings towards his family with his own actions. In 1964 a member of the Schlaepfer family along with an outside family donated  two hectares of land which was to be used by the local scouts. This land is located just off Ostrich Farm Road and is a mixture of native bush and large grass areas. After being donated the land was named Schlaepfer Park Scout Camp. The Schlaepfer family has helped the camp out immensely however Brian himself is credited on the camps website with connecting water to the campsite from his own bore. It has been said that he at one point was a volunteer with the scouts as a scout master. The park is still in use today as a campground for everyone and as a wedding venue. There are also some bush trails suitable for anyone to walk. Brian Schlaepfer also founded the local gliding club. It is no wonder everyone in the local community held the Schlaepfer family in such high regard, they used their wealth and land to help those around them whether they be a stranger or family member. 
-
-
-
-
-
-
-
 
 
 ## The Farm
