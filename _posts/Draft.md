@@ -45,3 +45,15 @@ Linda under the instruction of Constable Jeff Stuck locks all the doors of the h
 5. Hazel Schlaepfer, 42 years old.
 6. Peter Schlaepfer, 39 years old
 7. Brian Schlaepfer, 64 years old. 
+
+## Police responce
+Constable Jeff Stuck stayed on the phone with Linda for 3+ hours while the police organized themselves and made a plan of attack. He would try and get information out of her as well as let her know important information about the police movements. AQccoridng to Constable Stuck they talked about her 3 pets cats, school interests, her ballet and jazz dancing, and about how her family had been to the movies the day before. 
+
+
+Refrences
+http://www.crime.co.nz/c-files.aspx?ID=10
+https://truecrimenz.com/2019/07/14/case-3-schlaepfer-family-murders-transcript/
+https://www.nzherald.co.nz/nz/news/article.cfm?c_id=1&objectid=10440545
+https://www.apnews.com/af40ab8f57156201b32d44b7d11d09ce
+https://murderpedia.org/male.S/s/schlaepfer-brian.htm
+http://www.schlaepferpark.org/
