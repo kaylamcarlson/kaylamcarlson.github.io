@@ -4,7 +4,7 @@ title: "The Schlaepfer Family Murder"
 author: "Kayla Carlson"
 categories: journal
 tags: [documentation,sample]
-image: mountains.jpg
+image: Schlaepfer graves.jpg
 ---
 
 # The Schlaepfer Family Murder
