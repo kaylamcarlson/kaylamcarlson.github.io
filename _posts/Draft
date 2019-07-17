@@ -1,1 +1,11 @@
-hi
+---
+layout: post
+title: "This is my test post!"
+author: "Kayla Carlson"
+categories: journal
+tags: [documentation,sample]
+image: mountains.jpg
+---
+
+# H1
+The Schlaepfer Family Murder
