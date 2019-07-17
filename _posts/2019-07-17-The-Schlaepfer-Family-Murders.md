@@ -8,7 +8,7 @@ image: Schlaepfer graves.jpg
 ---
 
 
-# The Schlaepfer Family Murder
+# The Schlaepfer Family Murders
 On the 20th of May in 1992, South Auckland was shocked by the brutal act of one farmer against his own family. This man's name was Brian Schlaepfer and he took 6 innocent lives from this world, or 7 lives total if you include him. The victims include his wife, 3 sons, a daughter-in-law and a grandson. After the violence occurred, Brian then wandered into the nearby woods of his property and killed himself. 
 
 
