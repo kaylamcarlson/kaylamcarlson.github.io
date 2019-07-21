@@ -32,7 +32,7 @@ Hazel at this point hears the commotion going on at the house and decides she ne
 
 Reports state that after killing Peter, Brian went back to looking for Linda. He knew she was home and tried calling for her. At this stage Linda had moved from the closest to under her bed. At some point after Brian has left the house Linda goes into her brother Aarons room and sees him either dead or in the process of dying. She then does the bravest and smartest thing she could have done on the day by heading to the kitchen. She passes her dead mother, collects the phone and continues the conversation with Constable Jeff Stuck. I won't write the entire transcript of the phone conversation but you can find bits and pieces online if you're so inclined to look for it. The most haunting part of the call however goes like this: 
 
-> *Stuck:** "What’s happening there, love?"
+> **Stuck:** "What’s happening there, love?"
 
 > **Linda:** "My granddad…."
 
