@@ -4,7 +4,7 @@ title: "The disappearance and murder of Jane Furlong"
 author: "Kayla Carlson"
 categories: journal
 tags: [documentation,sample]
-![alt text](https://raw.githubusercontent.com/kaylamcarlson/kaylamcarlson.github.io/master/assets/img/JaneFurlong2.jpg)
+image: JaneFurlong2.jpg
 ---
 
 # The disappearance and murder of Jane Furlong 
