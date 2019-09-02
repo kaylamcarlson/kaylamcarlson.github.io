@@ -94,14 +94,14 @@ If you have any information about the case at all, please reach out and tell som
 ---
 
 ### References
-[id]:. https://www.nzherald.co.nz/nz/news/article.cfm?c_id=1&objectid=12173103
-[id]:. http://www.stuff.co.nz/waikato-times/7142167/Sad-end-to-a-tragic-life
-[id]:. https://www.stuff.co.nz/national/crime/111794739/five-of-new-zealands-most-notorious-cold-cases
-[id]:. http://www.stuff.co.nz/auckland/7283322/Clothing-clue-in-Furlong-murder-probe
-[id]:. https://en.wikipedia.org/wiki/Jayne_Furlong
-[id]:. https://www.nzherald.co.nz/nz/news/article.cfm?c_id=1&objectid=10814436
-[id]:. https://doc-search.squiz.cloud/s/search.html?collection=parole-board-web&query=Wayne+McGrath
-[id]:. https://en.wikipedia.org/wiki/Sensing_Murder
-[id]:. https://www.nzherald.co.nz/nz/news/article.cfm?c_id=1&objectid=12238849
-[id]:. https://www.nzherald.co.nz/nz/news/article.cfm?c_id=1&objectid=10815079
-[id]:. https://www.facebook.com/Jane-Furlong-What-REALLY-happened-352775738457184/
+1. https://www.nzherald.co.nz/nz/news/article.cfm?c_id=1&objectid=12173103
+1. http://www.stuff.co.nz/waikato-times/7142167/Sad-end-to-a-tragic-life
+1. https://www.stuff.co.nz/national/crime/111794739/five-of-new-zealands-most-notorious-cold-cases
+1. http://www.stuff.co.nz/auckland/7283322/Clothing-clue-in-Furlong-murder-probe
+1. https://en.wikipedia.org/wiki/Jayne_Furlong
+1. https://www.nzherald.co.nz/nz/news/article.cfm?c_id=1&objectid=10814436
+1. https://doc-search.squiz.cloud/s/search.html?collection=parole-board-web&query=Wayne+McGrath
+1. https://en.wikipedia.org/wiki/Sensing_Murder
+1. https://www.nzherald.co.nz/nz/news/article.cfm?c_id=1&objectid=12238849
+1. https://www.nzherald.co.nz/nz/news/article.cfm?c_id=1&objectid=10815079
+1. https://www.facebook.com/Jane-Furlong-What-REALLY-happened-352775738457184/
