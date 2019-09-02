@@ -89,7 +89,7 @@ The latest updates on the case came on a tv show called Cold Case. On the 9th of
 
 As of September 2019, there has been no developments in the case of Jane Furlong. The case remains unsolved and open by the police. There has been a few persons of interest with Wayne McGrath being the only named person of interest. It is very likely that the case will remain this way unless police get new information or people decided to divulge information to the police, they claim to be in possession of. The $50,000 reward is still unclaimed. 
 
-If you have any information about the case at all, please reach out and tell someone what you know. You never know what will come of your information. Sometimes even the smallest detail can lead to an arrest. You can message the New Zealand Police Conduct Association who is a lobby group via Facebook or email. You can also contact them on 021 151 0579 and they will pass all information onto the police. 
+If you have any information about the case you can message the New Zealand Police Conduct Association who is a lobby group via Facebook or email. You can also contact them on 021 151 0579 and they will pass all information onto the police. 
 
 ---
 
