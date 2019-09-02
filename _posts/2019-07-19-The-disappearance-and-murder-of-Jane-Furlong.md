@@ -13,6 +13,8 @@ New Zealand is one of the safest and most beautiful places to live. This is back
 ![alt text](https://raw.githubusercontent.com/kaylamcarlson/kaylamcarlson.github.io/master/assets/img/JaneFurlong.jpg)
 > Jane Furlong 
 
+---
+
 ## Early Life 
 When Jane was 4, her parents separated. Judith Furlong, Janes mother struggled to look after 2 kids and after a 2-year struggle both Jane and her brother Mark were put into care. A half-brother called Andrew went to live with his grandparents. Jane in her school project stated that she hated her mum for doing that to her. At age 9 nine Jane was placed with a foster family and did well in school. She was a bright little girl who constantly got top marks. However, as she got older, she felt her new mum didn't like her either and this is when her personality started to change. She turned into an angry and rebellious teenager. Her life was full of suicide attempts and violent outbursts. After 5 years in a foster family she went to Whangarei Girls High as a boarder. She did not make life easy for her teachers there and resorted to partaking in satanism and witchcraft. She started to lie, abuse her body, drink and steal on a regular basis. 1989 is the first-time document where Jane ran away. She ran away due to being accused of stealing money not long after her 14th birthday. 
 
@@ -20,16 +22,22 @@ Attending Whangarei Girls High was the start of her troubled school journey. She
 
 Jane Furlong wrote a diary in 1991 when she was only 15. This diary helped solved a rape case in 2015 and describe her life ambitions. She had ambitions to become a child psychologist. She also wrote that she was willing to work hard to achieve her dreams and that her attitude had changed, and she no longer felt suicidal. However, her life was cut short and her dreams were never realised, and she never got a chance to be a good mum and watch her own son grow up. 
 
+---
+
 ## The Crime
 Jane Furlong worked as a sex worker on K road. She had been doing so for a few years and was only 17 in 1993 when she disappeared. On the night of May 26th, she was abducted while working on K road. Before she disappeared, she talked to a detective in Auckland Central in relation to 3 ongoing court cases. She later returned to work on K road and was last seen at 10:30pm. After 2 days Jane's boyfriend Danny Norsworthy reported her missing. She was last seen wearing a black miniskirt and lace shirt, a brown leather jacket with tassels on it and some ankle boots. Police appealed to the public for sightings of the young woman describing her as 1.58cm tall, only 43kgs and spotting a distinctive grim reaper tattoo on her left arm.
 
 The police figured out that her bag was missing and that before the disappearance, Jane had borrowed a few hundred dollars from her friends. Due to her known history of running away from the police, friends and family assumed Jane had just run away and hoped she would show up somewhere else when she was ready to be found. 3 years passed and attention continued to follow the case. In 1996 the police turned it from a missing persons case into a murder probe. In 1993, 1996, 2004 and 2007 the police conducted investigations into her disappearance however they turned up nothing and the case would fall back into a cold case status. In 2012 her body was found on a beach. 
+
+---
 
 ## Criminal cases Jane was involved in
 Before Jane disappeared, she was in contact with the police as she was involved in 3 separate court cases. She was the key witness in relation to an assault that occurred on K road. She was involved in the trial of a wealthy Auckland businessman called Stephen Collie. He was in trouble for violent sexual attacks on eight women. Most of them were prostitutes and Jane was apparently raped by this man. She was also a complainant and witness in an incident relating to gang members and a crossbow being fired. Due to her involvement, some people have speculated that she was killed so she could not testify. It was also speculated due to the pressures of the court cases and the recent birth of her baby that she couldn't cope with the stress. This helped to back up the theory that she may have runway so she would not have to deal with her responsibilities.
 
 ![alt text](https://raw.githubusercontent.com/kaylamcarlson/kaylamcarlson.github.io/master/assets/img/Stephen%20Collie.jpg) 
 > Stephen Collie pictured with his wife Inna Rudyy
+
+---
 
 ## 2012-2013
 19 years after Jane disappeared everyone's worst assumptions were proved true. By this time most people had assumed she was murdered and dead however, people like to cling to hope. With no body being found there was a slight hope she was alive and hiding out in a small New Zealand town. Jane Furlongs body was discovered on the 19th of May in 2012 by a woman walking her dog on Sunset Beach in Port Waikato. Her body was discovered only 100 kilometres away from where she was last seen in 1993. This prompted a new investigation into the now confirmed murder case. It led the police to believe more than one person was involved in her death. Jane was found wearing different clothes than the ones she was last seen in. The police deduced that Jane may have been alive for several days after her abduction before her death due to the clothes found.
@@ -47,11 +55,15 @@ Aidan Norsworthy who in 2012 was 19 broke his silence about how this case has im
 
 In 2013 the police announced a $50,000 reward for anyone who could give the police evidence that would lead to the conviction of Jane’s killer. Jane’s boyfriend at the time Danny Norsworthy finally agreed to talk to the police in 2013. However, he provided the police with no new evidence. Danny’s parents spoke to the media and his dad John specially was convinced his son was in no way connected to Janes murder and disappearance. He attributes his son’s hesitance to talk to police up until now on the pain of the incident and not wanting to relive it over again. 
 
+---
+
 ## 2015
 
 In 2015 new interest was brought into the case and the police came up with a new person of interest in the disappearance and murder of Jane Furlong. Wayne Michael McGrath outed himself as a person of interest in 2015 while he was on trial for the rape of a women in 1991. The victim has name suppression however she was a close friend of Jane Furlong when she was alive. They both worked as sex workers on K road. The victim stated she was raped by Wayne McGrath and described how it happened to the court in 2015. In July 1991 Jane and her friend were walking in Auckland when Norsworthy and McGrath picked the girls up and took them to their Keats Rd flat in Blockhouse Bay. The victim passed out in Jane and Danny's bedroom. McGrath at the time was living at the house in a converted lounge area. The victim stated she woke up when McGrath lifted her up and took her to his room. He proceeded to barricade the room shut and rape her. She did not scream as she was scared McGrath would become violent with her. She told Jane the next day and Jane apparently confronted McGrath about the incident. The 2 had to be separated from each other to avoid a fight. 
 
 The women only brought this incident to light 19 years later when the police specifically questioned her about Wayne McGrath. Her claims were backed up by detailed writings found in Janes 1991 diary where she wrote all about the incident.
+
+---
 
 ## Wayne McGrath
 
@@ -62,6 +74,8 @@ He has applied for Parole 2 times and been denied both times. He is next eligibl
 
 ![alt text](https://raw.githubusercontent.com/kaylamcarlson/kaylamcarlson.github.io/master/assets/img/Wayne%20McGrath.jpg)
 > Wayne McGrath at his sentencing in 2015
+
+---
 
 ## Interesting extra details
 Judith Furlong tried to get further coroners inquires done into her daughter’s death however they decided it would not provide any additional details. 
@@ -76,6 +90,7 @@ As of September 2019, there has been no developments in the case of Jane Furlong
 
 If you have any information about the case at all, please reach out and tell someone what you know. You never know what will come of your information. Sometimes even the smallest detail can lead to an arrest. You can message the New Zealand Police Conduct Association who is a lobby group via Facebook or email. You can also contact them on 021 151 0579 and they will pass all information onto the police. 
 
+---
 
 ### References
 1. https://www.nzherald.co.nz/nz/news/article.cfm?c_id=1&objectid=12173103
