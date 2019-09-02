@@ -42,6 +42,7 @@ Before Jane disappeared, she was in contact with the police as she was involved 
 
 ## 2012-2013
 19 years after Jane disappeared everyone's worst assumptions were proved true. By this time most people had assumed she was murdered and dead however, people like to cling to hope. With no body being found there was a slight hope she was alive and hiding out in a small New Zealand town. Jane Furlongs body was discovered on the 19th of May in 2012 by a woman walking her dog on Sunset Beach in Port Waikato. Her body was discovered only 100 kilometres away from where she was last seen in 1993. This prompted a new investigation into the now confirmed murder case. It led the police to believe more than one person was involved in her death. Jane was found wearing different clothes than the ones she was last seen in. The police deduced that Jane may have been alive for several days after her abduction before her death due to the clothes found.
+
 ![alt text](https://raw.githubusercontent.com/kaylamcarlson/kaylamcarlson.github.io/master/assets/img/Sunset%20Beach.jpg)
 > Sunset Beach where Jane Furlongs body was found
 
