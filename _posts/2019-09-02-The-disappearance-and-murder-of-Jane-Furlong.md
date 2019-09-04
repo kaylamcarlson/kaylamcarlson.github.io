@@ -81,7 +81,7 @@ He has applied for Parole 2 times and been denied both times. He is next eligibl
 ## Interesting extra details
 Judith Furlong tried to get further coroners inquires done into her daughter’s death however they decided it would not provide any additional details. 
 
-In 2003 two unnamed witnesses claimed that they heard a career criminal confess to the murder of Jane. According to the police the witnesses provide them with factually incorrect information. Because of the incorrect information provided the police decided not to follow the lead up. 
+In 2003 two unnamed witnesses claimed that they heard a career criminal confess to the murder of Jane. According to the police the witnesses provided them with factually incorrect information. Because of the incorrect information provided the police decided not to follow the lead up. 
 
 In 2007 Janes case was on Sensing Murder. Her episode aired as part of season 2. Her episode is number 6 and was named Lost For Words. It aired on the 9th of October 2007. Kelvin Cruickshank and Deb Webber investigated the case however they provided nothing of interest. 
 
